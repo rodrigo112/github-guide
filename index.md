@@ -1,6 +1,6 @@
 ## This page is under construction
 
 
-Come back soon             ![Scream emoji](https://emojipedia-us.s3.amazonaws.com/thumbs/160/google/80/face-screaming-in-fear_1f631.png)
+Come back soon             ![Under construction image](http://www.hunter.cuny.edu/onestop/financial-aid-images-new/fa-working-draft-images/under-construction.png/image_preview)
 
 
